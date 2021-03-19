@@ -5,9 +5,9 @@ Me llamo Juan Agustín Codón, tengo 22 años, mi legajo es 10893 y soy de Campa
 ![](https://i.imgur.com/5EMOP4T.jpeg)
 
 ### Hobbies:
-- Mirar peliculas y series
+- Mirar películas y series
 + Jugar videojuegos
 - Consentir a mi perra <3
-+ Hace poco empece una huerta
++ Hace poco empecé una huerta
 ### Bernit
 ![Bernit](https://i.imgur.com/XNlhNC0.jpg)
